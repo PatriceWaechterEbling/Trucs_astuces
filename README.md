@@ -1,2 +1,2 @@
 # Trucs_astuces
-+ N'hesiter pas a partager vos trucs
++ N'hesitez pas a partager vos trucs
